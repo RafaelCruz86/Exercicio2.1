@@ -1,6 +1,6 @@
 # Exercicio2.1
 
-**Rafael Cruz**
+**Rafael Monteiro da Cruz**
 
 ## Índice
 
