@@ -213,3 +213,191 @@ A perpetuação e a eficiência das massivas políticas de reconfiguração tecn
 
 Ao alinhar estruturalmente o processamento massivo, rigoroso e calculável conferido pelos algoritmos da assistente Celeste para a triagem à essencialidade de um planejamento que humanize verdadeiramente o espaço virtual e mitigue o *burnout* silencioso em seus analistas e servidores em balcão, o TRT18 não mitiga exclusivamente atritos sistêmicos, letramento computacional opressivo ou processos atrasados.[4, 6, 9, 10] A Corte estará sedimentando as bases práticas de um arquétipo exemplar, escalável, resiliente e inclusivo de resgate da cidadania digital na prestação contemporânea.[8] Observar implacavelmente e absorver o controle metódico determinado pelas balizas da LGPD e a conformidade aos diagnósticos qualitativos baseados nas metodologias profundas de *design de serviços* alçarão as inovações sistêmicas da 18ª Região a posições notáveis de vanguarda no laboratório do sistema jurídico confederativo do Brasil.[6, 8, 39, 47] O sucesso supremo do Balcão Virtual será atingido quando ele deixar de ser concebido mentalmente como um apêndice substitutivo de emergências pretéritas e passar a operar homogeneamente e de forma inquebrável, incolor e transparente, assim como a própria engrenagem da aplicação da justiça material para todos os segmentos e graus da sociedade brasileira que dele carece ininterruptamente.[23]
 
+Fontes uusdas no relatório:
+
+[1]atos.cnj.jus.br
+Dispõe sobre a criação dos “Núcleos de Justiça 4.0” e dá outras providências. - CNJ
+Abre em uma nova janela
+
+[2]trt4.jus.br
+Diagnóstico Justiça 4.0: Participe da segunda fase da pesquisa do CNJ sobre políticas tecnológicas até 14 de julho - TRT4
+Abre em uma nova janela
+
+[3]jfpb.jus.br
+Diagnóstico Justiça 4.0: CNJ convida corpo funcional do TRF5 a responder pesquisa - JFPB
+Abre em uma nova janela
+
+[4]trt18.jus.br
+Unidades judiciárias passam a atender ao público por meio de “Balcão Virtual” | TRT18
+Abre em uma nova janela
+
+[5]cnj.jus.br
+Balcão Virtual já está em operação no CNJ
+Abre em uma nova janela
+
+[6]trt13.jus.br
+Detalhar desafio "Balcão Virtual II" - TRT13
+Abre em uma nova janela
+
+[7]youtube.com
+Balcão virtual do TRT/RJ - Libras e Audiodescrição - YouTube
+Abre em uma nova janela
+
+[8]jota.info
+Exclusão digital: Sobre acessos e abscessos - JOTA
+Abre em uma nova janela
+
+[9]trt18.jus.br
+Atendimento ao Público - TRT18
+Abre em uma nova janela
+
+[10]trt18.jus.br
+Celeste dá boas-vindas: TRT-GO lança plataforma que integra canais e moderniza atendimento | TRT18
+Abre em uma nova janela
+
+[11]trt18.jus.br
+Precisa de ajuda? Veja aqui os canais de atendimento da Justiça do Trabalho - TRT18
+Abre em uma nova janela
+
+[12]cnj.jus.br
+Em Goiás, atividades presenciais na Justiça do Trabalho seguem suspensas - Portal CNJ
+Abre em uma nova janela
+
+[13]sindjusma.org
+Sindjus-MA protocola requerimento para ... - PORTAL SINDJUS/MA
+Abre em uma nova janela
+
+[14]memoria.jfrs.jus.br
+Texto compilado a partir da redação dada pela Resolução n. 403
+Abre em uma nova janela
+
+[15]trt14.jus.br
+Boas Práticas Corregedoria - TRT 14
+Abre em uma nova janela
+
+[16]bibliotecadigital.trt18.jus.br
+PODER JUDICIÁRIO DA UNIÃO TRIBUNAL REGIONAL DO TRABALHO DA 18ª REGIÃO TRIBUNAL PLENO Referenda a Portaria TRT 18ª SGP/SGJ N
+Abre em uma nova janela
+
+[17]bibliotecadigital.trt18.jus.br
+Resolução Administrativa STP nº. 53/2024 - BDTRT18
+Abre em uma nova janela
+
+[18]bibliotecadigital.trt18.jus.br
+Pesquisar - BDTRT18
+Abre em uma nova janela
+
+[19]trt24.jus.br
+Participe da Pesquisa CNJ: 2ª etapa do Diagnóstico Justiça 4.0 - TRT24
+Abre em uma nova janela
+
+[20]cnj.jus.br
+Pesquisa sobre políticas tecnológicas do Programa Justiça 4.0 começa nesta segunda (3/6)
+Abre em uma nova janela
+
+[21]tjsc.jus.br
+Pesquisa Diagnóstico Justiça 4.0 é prorrogada e segue até a próxima sexta (21/7) - Imprensa - Poder Judiciário de Santa Catarina
+Abre em uma nova janela
+
+[22]novogerenciador.tjma.jus.br
+MALOTE DIGITAL
+Abre em uma nova janela
+
+[23]undp.org
+Diagnóstico 4.0: pesquisa sobre políticas tecnológicas do Programa Justiça 4.0 começa nesta segunda (3)
+Abre em uma nova janela
+
+[24]trt18.jus.br
+TRT18 | Tribunal Regional do Trabalho da 18a Regiao
+Abre em uma nova janela
+
+[25]balcaovirtual.trt12.jus.br
+TRT12 - Balcão Virtual
+Abre em uma nova janela
+
+[26]balcaovirtual.stj.jus.br
+SALA ACESSÍVEL Como Funciona - Balcão Virtual do STJ
+Abre em uma nova janela
+
+[27]manualdoadvogado.com.br
+Balcão virtual na Justiça do Trabalho! - Manual do Advogado
+Abre em uma nova janela
+
+[28]ww2.trt2.jus.br
+Usuários do Balcão Virtual do TRT da 2ª Região aprovam o serviço
+Abre em uma nova janela
+
+[29]trt18.jus.br
+Serviços de Informação ao Cidadão (SIC) - TRT18
+Abre em uma nova janela
+
+[30]trt18.jus.br
+Contato - TRT18
+Abre em uma nova janela
+
+[31]portal.trt12.jus.br
+Balcão Visual - Acessível em Libras | Tribunal Regional do Trabalho da 12ª Região
+Abre em uma nova janela
+
+[32]trt18.jus.br
+Balcão Visual - TRT18
+Abre em uma nova janela
+
+[33]trt18.jus.br
+TRT Presente - TRT18
+Abre em uma nova janela
+
+[34]trt18.jus.br
+Nova página Ação Trabalhista Verbal facilita atermação verbal pela internet durante a pandemia | TRT18
+Abre em uma nova janela
+
+[35]trt18.jus.br
+Tutoriais e Recursos Disponíveis - TRT18
+Abre em uma nova janela
+
+[36]trt18.jus.br
+Carta de Serviços ao Cidadão - TRT18
+Abre em uma nova janela
+
+[37]trt18.jus.br
+TRT18 lança sua Carta de Serviços e facilita acesso do cidadão à Justiça do Trabalho
+Abre em uma nova janela
+
+[38]jfpe.jus.br
+Sobre a LGPD - Portal JFPE
+Abre em uma nova janela
+
+[39]stm.jus.br
+Lei Geral de Proteção aos Dados (LGPD) - STM
+Abre em uma nova janela
+
+[40]trt13.jus.br
+Tribunal Regional do Trabalho 13ª Região - Paraíba - TRT13
+Abre em uma nova janela
+
+[41]trt13.jus.br
+Levantamento de Protótipos - Balcão Virtual - TRT13
+Abre em uma nova janela
+
+[42]premioinnovare.com.br
+Busca de Práticas - Innovare
+Abre em uma nova janela
+
+[43]stj.jus.br
+Tribunal lança Sala Acessível no Balcão Virtual para atender usuários com deficiência - STJ
+Abre em uma nova janela
+
+[44]trt5.jus.br
+Balcão Virtual das Varas do Trabalho do Interior - TRT5
+Abre em uma nova janela
+
+[45]trt5.jus.br
+Balcão Virtual do TRT-5 | Tribunal Regional do Trabalho 5ª Região
+Abre em uma nova janela
+
+[46]trt5.jus.br
+Entrega de prêmio Innovare ao TRT5 será transmitida via web nesta terça (1º/12)
+Abre em uma nova janela
+
+[47]cnj.jus.br
+Relatório de entregas do Programa Justiça 4.0 - CNJ
