@@ -213,7 +213,7 @@ A perpetuação e a eficiência das massivas políticas de reconfiguração tecn
 
 Ao alinhar estruturalmente o processamento massivo, rigoroso e calculável conferido pelos algoritmos da assistente Celeste para a triagem à essencialidade de um planejamento que humanize verdadeiramente o espaço virtual e mitigue o *burnout* silencioso em seus analistas e servidores em balcão, o TRT18 não mitiga exclusivamente atritos sistêmicos, letramento computacional opressivo ou processos atrasados.[4, 6, 9, 10] A Corte estará sedimentando as bases práticas de um arquétipo exemplar, escalável, resiliente e inclusivo de resgate da cidadania digital na prestação contemporânea.[8] Observar implacavelmente e absorver o controle metódico determinado pelas balizas da LGPD e a conformidade aos diagnósticos qualitativos baseados nas metodologias profundas de *design de serviços* alçarão as inovações sistêmicas da 18ª Região a posições notáveis de vanguarda no laboratório do sistema jurídico confederativo do Brasil.[6, 8, 39, 47] O sucesso supremo do Balcão Virtual será atingido quando ele deixar de ser concebido mentalmente como um apêndice substitutivo de emergências pretéritas e passar a operar homogeneamente e de forma inquebrável, incolor e transparente, assim como a própria engrenagem da aplicação da justiça material para todos os segmentos e graus da sociedade brasileira que dele carece ininterruptamente.[23]
 
-Fontes uusdas no relatório:
+Fontes usadas no relatório:
 
 [1]atos.cnj.jus.br
 Dispõe sobre a criação dos “Núcleos de Justiça 4.0” e dá outras providências. - CNJ
