@@ -114,4 +114,28 @@ O aprimoramento dessas ferramentas demanda o abandono de métricas especulativas
 2. Promover mapeamento rigoroso (*Journey Mapping*) para destrinchar e validar as hipóteses de "opacidade" e "gargalos da URA (Celeste)".
 3. Solidificar os PIDs no estado com priorização algorítmica de atermação verbal.
 
-Apliquei as mudanças solicitadas: a citação foi corrigida, as ressalvas métricas devidamente explicadas e as aspirações do projeto corretamente enquadradas. Se houver mais algum ponto a debater ou refinar, estou à disposição!
+Fontes pesquisadas:
+
+
+[1]atos.cnj.jus.br
+Regulamenta a criação de plataforma de videoconferência denominada “Balcão Virtual
+Abre em uma nova janela
+
+[2]csjt.jus.br
+CSJT implementa Balcão Virtual para atendimento ao público ...
+Abre em uma nova janela
+
+[3]trt13.jus.br
+DEJT Acessível: projeto premiado do TRT-13 é apresentado no CONIP, em Brasília
+Abre em uma nova janela
+
+[4]camaraconciliare.com
+burocracia – Câmara Conciliare
+Abre em uma nova janela
+
+[5]trt18.jus.br
+TRT-GO lança Balcão Visual para atendimento em libras em ...
+Abre em uma nova janela
+
+[6]trt18.jus.br
+TRT-18 instala Pontos de Inclusão Digital. Espaços podem ser ...
