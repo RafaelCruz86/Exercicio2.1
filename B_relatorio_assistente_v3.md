@@ -112,8 +112,7 @@ O aprimoramento dessas ferramentas demanda o abandono de métricas especulativas
 2. Promover mapeamento rigoroso (*Journey Mapping*) para destrinchar e validar as hipóteses de "opacidade" e "gargalos da URA (Celeste)".
 3. Solidificar os PIDs no estado com priorização algorítmica de atermação verbal.
 
-Fontes pesquisadas:
-
+##Fontes pesquisadas:
 
 [1]atos.cnj.jus.br
 Regulamenta a criação de plataforma de videoconferência denominada “Balcão Virtual
