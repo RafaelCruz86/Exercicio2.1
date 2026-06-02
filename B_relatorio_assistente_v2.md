@@ -1,5 +1,3 @@
-Revisão do Balcão Virtual TRT18: Auditoria e Correções
-
 # Relatório Analítico: Redesenho Estrutural, Governança e Avaliação Operacional do Balcão Virtual do TRT18
 
 ## Introdução e Parâmetros Metodológicos da Análise Estrutural
